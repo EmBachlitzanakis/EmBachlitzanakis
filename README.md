@@ -1,4 +1,3 @@
-========================================
 
 * ✉️  You can contact me at [embachlitzanakis@gmail.com](mailto:embachlitzanakis@gmail.com)
 

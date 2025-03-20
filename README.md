@@ -1,5 +1,6 @@
 
 * ✉️  You can contact me at [embachlitzanakis@gmail.com](mailto:embachlitzanakis@gmail.com)
+or (https://www.linkedin.com/in/emmanuel-bachlitzanakis-390b4b243/)
 
 ### Languages I frequently use
 
